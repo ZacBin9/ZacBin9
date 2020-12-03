@@ -1,5 +1,3 @@
-### About Me 👏🏻
+### Hi, there! I'm Zack. 👏🏻
 
-I'm Zack, a new-coming githubor.
-
-> ✨ Wish you guys have a good day! ✨
+✨ Wish you guys have a good day! ✨
